@@ -6,7 +6,7 @@
 
 群组频道及联系方式：
 ------------------------------
-QQ群：http://qq.group.jj.ngcss.link/ （进群后先看公告）
+QQ群：http://qq.group.jj.ngcss-link.com/ （进群后先看公告）
 
 TG群：https://t.me/ngcss （不可开车）
 
