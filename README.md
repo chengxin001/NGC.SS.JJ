@@ -1,11 +1,11 @@
-官网：http://ji-bc.pw
+官网：https://ji-bc.pw
 ------------------------------
 备用：
 
-ji-bd.pw
+https://ji-bd.pw
 
-ji-be.pw
+https://ji-be.pw
 
-ji-bf.pw
+https://ji-bf.pw
 
-ji-bg.pw
+https://ji-bg.pw
