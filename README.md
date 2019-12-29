@@ -1,5 +1,10 @@
-官网：https://ji-bc.pw
+最新网址获地址：cc.ax
 ------------------------------
+
+官网：
+
+https://ji-bc.pw
+
 备用：
 
 https://ji-bd.pw
