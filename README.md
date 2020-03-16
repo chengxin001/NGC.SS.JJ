@@ -3,7 +3,7 @@
 
 官网：
 
-998manbetx.com
+https://998manbetx.com
 
 备用：54545
 
