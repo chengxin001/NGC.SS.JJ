@@ -1,16 +1,9 @@
-最新网址获地址：cc.ax
+最新网址获地址：qq交流群99557854222
 ------------------------------
 
 官网：
 
-https://ji-bc.pw
+998manbetx.com
 
-备用：
+备用：54545
 
-https://ji-bd.pw
-
-https://ji-be.pw
-
-https://ji-bf.pw
-
-https://ji-bg.pw
